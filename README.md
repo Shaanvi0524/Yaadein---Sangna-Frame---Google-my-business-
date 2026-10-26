@@ -1,4 +1,4 @@
-Google Business Profile Optimization for Yaadein Frames
+Google Business Profile Optimization for Yaadein / Sangna Frames
 
 Project Overview
 
